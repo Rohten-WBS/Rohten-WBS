@@ -1,8 +1,8 @@
 👋 Hi, I’m Rohten,
 
-this is a pure WBS-Training Account for my Training Projects.
+this is a pure WBS-Training account for my learn projects.
 
-If you are looking for my none-schooling stuff visit https://rohten.itch.io/
+If you are interested in my none-schooling stuff visit https://rohten.itch.io/
 
 see ya, gl and hf
 
