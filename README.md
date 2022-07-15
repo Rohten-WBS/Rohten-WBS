@@ -1,5 +1,5 @@
-👋 Hi, I’m @Rohten-WBS
-This a pure WBS-Training Account for my Training Projects.
+👋 Hi, I’m Rohten,
+this is a pure WBS-Training Account for my Training Projects.
 
 If you are looking for my none-schooling stuff visit https://rohten.itch.io/
 
